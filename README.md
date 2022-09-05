@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **many projects.**
 
-- 💬 Ask me about **anything, am an open book.**
+- 💬 Ask me about **anything, I am an open book.**
 
 - 📫 How to reach me **hassen.shire@gmail.com**
 
